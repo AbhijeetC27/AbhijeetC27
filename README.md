@@ -1,0 +1,1 @@
+Creative, reliable and detail-oriented software engineer with a wide expertise of technical skills. Adept at motivating self and others. Passionate about writing elegant codes and upgrading with the latest technologies.
